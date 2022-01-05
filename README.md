@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @EkaterinaDiaz
+- 👀 I’m a Designated Support Specialist for Shotgrid at Autodesk
